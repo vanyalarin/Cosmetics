@@ -1,1 +1,1 @@
-[LINK](https://vanyalarin.github.io/pagesCosmetics/)
+[LINK](https://vanyalarin.github.io/pageCosmetics/)
